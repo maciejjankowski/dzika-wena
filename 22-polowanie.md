@@ -1,4 +1,4 @@
-Szalenie podoba mi się, że jest myśliwym, żepoluje na upatrzone ofiary, że wyobraża sobie co z nimi zrobi.
+Szalenie podoba mi się, że jest myśliwym, że poluje na upatrzone ofiary, że wyobraża sobie co z nimi zrobi.
 Podoba mi się, że kiedy jest ze mną, nadal mogę być myśliwym, nadal mogę polować.
 Podoba mi sie, że zapoluje razem ze mną, że podzielimy się naszą ofiarą, albo kazde z nas upoluje własną.
 Jest taka drapieżna i pełna życia.
@@ -25,4 +25,8 @@ Nie mogłem przestać całować jej uda - uwielbiam to miejsce i tę najdelikatn
 Uwielbiam jej brzuch i piersi.
 Zbliżałem się coraz bardziej, by zanurkować pomiędzy jej uda i zacząłem ją intensywnie i namiętnie lizać. Szybko znalazłem właściwe tempo i robiłem to bez przerwy. Dziobiąc ją nosem i przyciskając do łóżka. Wplatała palce w moje włosy i znów była taka głośna.
 Przykryłem jej usta gdy tylko poczułem, że dochodzi.
+[...]
+Na każdą dziewczynę w klubie patrzyłem jak na naszą potencjalną ofiarę. Obserwując ich ruchy wyobrażałem sobie jaki mają temperament w łóżku. Jak porzuszają biodrami. Jak rytmicznie podskakują im cycki. Tańczą z koleżanką - splecione, lśniące od potu ciała wiją się w rytm muzyki.
+Od razu pomyślałem, że się nią podzielę. Spodobała mi się ta myśl, że moglibyśmy ją wspólnie deprawować. Kusi nieśmiałością. Kusi pełnymi kształtami. Kusi spokojnym spojrzeniem. Aż chce się ją psuć, sprawiać, że zgubi wstyd i wyzwoli się z przyzwoitości.
+Lubię wyobrażać sobie jak tęskni za dobrym seksem, jak już nie może się doczekać następnego razu.
 [...]
